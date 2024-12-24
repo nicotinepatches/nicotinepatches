@@ -8,7 +8,7 @@
 "𐔌ྀི mick 　.ᐟ　its  ◞+◟ he ◞
 </p>
 <p align="center">
-    𓏶། ྀིྀ ܸ﹒sixteen ⁺ asian ;ִ ʾʾ eng , kor , cn OK! 𓆪
+    𓏶། ྀིྀ ܸ﹒teen ⁺ asian ;ִ ʾʾ eng , kor , cn OK! 𓆪
 </p>
 <p align="center">
  phoebian lesb + aroace  ྐ  boygirlfail ! nb"
