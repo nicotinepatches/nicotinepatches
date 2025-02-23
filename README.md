@@ -2,7 +2,7 @@
 "what a thrill....with darkness and slience in the night"
 </p>
 <p align="center">
-    <img width="200" src="https://files.catbox.moe/d92tay.gif" alt="me and u">
+    <img width="200" src="https://files.catbox.moe/8vxv7e.png" alt="me and u">
 </p>
 <p align="center">
 "𐔌ྀི beetle 　.ᐟ　its  ◞+◟ he ◞
